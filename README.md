@@ -1,4 +1,4 @@
-### 🎉 Here is SUN Yanzheng
+### 🎉 Here is Yanzheng Sun
 
 📧Email: see my GitHub Profile
 
